@@ -9,7 +9,7 @@
 
 - 👯 I’m looking to collaborate on **AIML related Projects**
 
-- 📫 How to reach me **anuraagmalaysia@gmail.com**
+- 📫 How to reach me **anurag.k.singh02@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
